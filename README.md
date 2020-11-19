@@ -1,1 +1,1 @@
-# Praktyki
+# DAJCIE 2 PROSZE <3 JESTEŚCIE NAJLEPSI
